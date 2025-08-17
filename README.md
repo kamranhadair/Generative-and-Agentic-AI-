@@ -1,1 +1,1 @@
-# Generative-and-Agentic-AI-
+# Generative-and-Agentic-AI
